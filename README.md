@@ -1,3 +1,4 @@
+
 🌟 HEY! NOVA BRINGS YOU THE ULTIMATE FREE TWEAKS ⚡
 
 🛠️ How to Install These Amazing Tweaks:
@@ -13,6 +14,11 @@
 ✅ Upgrade Your CPU Performance 🧠 - Make your processor work like never before.
 ✅ Enhance Your Graphics Card 🎨 - Unlock the hidden power of your GPU.
 ✅ Speed Up Your Internet 🌐 - Get the edge in online gaming with lightning-fast connectivity.
+
+---
+
+🛠️ These are the tweaks:
+![Nova Tweaking Utility](attachment://image.png)
 
 ---
 
