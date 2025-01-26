@@ -18,7 +18,8 @@
 ---
 
 🛠️ These are the tweaks:
-![Nova Tweaking Utility](attachment://image.png)
+![image](https://github.com/user-attachments/assets/80136649-e519-4c2f-8320-31c9edb02405)
+
 
 ---
 
